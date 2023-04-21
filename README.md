@@ -1,6 +1,6 @@
 # hello-world2
-LeiameTopicosEspeciais
-3Sou Ana Cristina Moro em Registro-SP, sou estudante de Sistemas para Internet na UniCesumar 
+LeiameTopicosEspeciais 
+Sou Ana Cristina Moro em Registro-SP, sou estudante de Sistemas para Internet na UniCesumar 
 Sou autista de suporte 1, ou como alguns dizem Asperger 1.
 Dancei balé da infância até a adolescência; trabalhei em alguns lugares, incluindo alguns anos como açougueira, sofri um acidente a 10 anos e me tornei cadeirante, tive uma adaptação difícil passei 3 anos e meio semi vegetativa numa cama.
 Mas com muita paciência da minha mãe e muita, mas muita terapias e muita morfina também por conta das dores insuportáveis, me adaptei.
