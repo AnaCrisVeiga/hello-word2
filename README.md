@@ -1,4 +1,4 @@
-# hello-word2
+# hello-world2
 LeiameTopicosEspeciais
 3Sou Ana Cristina Moro em Registro-SP, sou estudante de Sistemas para Internet na UniCesumar 
 Sou autista de suporte 1, ou como alguns dizem Asperger 1.
